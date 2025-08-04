@@ -49,8 +49,9 @@ Stay tuned for:
 ---
 
 ## ⭐ Connect With Me
-LinkedIn --> https://www.linkedin.com/in/mohantejad/
-YouTube --> https://www.youtube.com/@BuildwithMohan
+LinkedIn --> (https://www.linkedin.com/in/mohantejad/)
+
+YouTube --> (https://www.youtube.com/@AIwithMohan)
 
 ---
 
